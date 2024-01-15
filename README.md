@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @raven4689
+- 👋 Hi, I’m бїядїё
 - 🌱 I’m currently learning Cyber Security
 - 📫 Discord: sudo.vi
 - 😄 Pronouns: 𓅱
