@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @raven4689
+- 🌱 I’m currently learning Computer Security
+- 📫 Discord: sudo.vi
+- 😄 Pronouns: 𓅱
